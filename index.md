@@ -73,6 +73,14 @@ Devils and demons from fairy tales, if they are dipped into modern adult everyda
 
 Price: 500 Euro
 
+### Kseniia Antipina
+
+#### Imposter
+
+An evil king may threathen the whole world with his cruelty and tyranny. But look at him, he is ridiculous, his crown is made of the toilet paper rolls, the palace is just a shabby toilet and the whole kingdom is an illusion.
+
+Price: can be purchased in the printed form from A5 to A0 and sent to you by post. Please talk to us for the details.
+
 ## Digital exhibition
 
 ### Katerina Klio
@@ -80,7 +88,7 @@ Price: 500 Euro
 Every girl in her childhood dreams about a giant doll. Sometimes miracles can happen! 
 Dreams come true and extraordinary things happen! But we are not happy for long — very soon we need another toy, more expensive, and more inaccessible. But maybe we already have everything that we need for happiness? And maybe to be happy, we just need to keep treasures that we already have?
 
-Can be purchased printed and sent to you by post. Please contact Kseniia for more details.
+Can be purchased printed and sent to you by post. Please talk to us for the details.
 
 ### Deborah Root
 
@@ -88,7 +96,7 @@ Each tondo is 92 cm in diameter, and completed in oil on panel.
 The Wheel of Fortune (2021) is a triptych consisting of three images, "The Bluebird of Happiness," "The Mirror of Enlightenment," and "Truth of Consequences." 
 The North American version of the fairytales she grew up on tended to have happy endings, assuming one kept a pure heart and did not deviate from the task at hand.  Despite the many instances in the real world of life not working out, these stories promised great things. The first image, "The Bluebird of Happiness," depicts this sense of possibility as the character emerges from an egg, ready to face the world with hope and courage. In the second image, "The Mirror of Enlightenment," reality has begun to set in. Here, the character is shown her reflection in a fleshy mirror, and she is no longer certain of the happy outcome promised in the first image. An unnoticed comet presages disaster. Finally, in "Truth or Consequences," the character sits, wearily reflecting on her past naïveté as the bluebird of happiness flies away.
 
-Can be purchased printed and sent to you by post. Please contact Kseniia for more details.
+Can be purchased printed and sent to you by post. Please talk to us for the details.
 
 ### María Sánchez
 
@@ -97,7 +105,7 @@ Can be purchased printed and sent to you by post. Please contact Kseniia for mor
 Digital painting (acrylics and ink) on fine art paper. 30x40 inches
 Over the years the artist has seen the concept of fairytales as an exploration of the unconscious. In them, people can find perfect analogies that give the opportunity to get to know ourselves and the environment in which people are connected. Degradation is a reflection of it. In this artwork, the artist has been inspired by several books and authors to show concepts as complex as death, rebirth, and life itself.
 
-Can be purchased printed and sent to you by post. Please contact Kseniia for more details.
+Can be purchased printed and sent to you by post. Please talk to us for the details.
 
 ### Christopher Fluder
 
@@ -105,7 +113,7 @@ Can be purchased printed and sent to you by post. Please contact Kseniia for mor
 * The Chemistry of Memory
 * Which End is the End
 
-Can be purchased printed and sent to you by post. Please contact Kseniia for more details.
+Can be purchased printed and sent to you by post. Please talk to us for the details.
 
 
 ## Video
